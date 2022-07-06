@@ -1,1 +1,1 @@
-Projects of Ivan Somkin and Ilya Karlov
+Joint projects of Ivan Somkin and Ilya Karlov
